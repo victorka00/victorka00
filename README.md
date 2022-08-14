@@ -1,5 +1,5 @@
 
-Ny GitHub-proil. Til bruk som studass i IT2805 for høstsemesteret 2022.
+Ny GitHub-profil; til bruk i mitt arbeid som studass i IT2805 for høstsemesteret 2022.
 
 
 
